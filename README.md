@@ -1,0 +1,2 @@
+# Riki
+Jajan dulu 
